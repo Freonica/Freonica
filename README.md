@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Freonica, IT-recruiter in AWG.ru. Also i'm translate the game lore into Russian.
+- 👋 Hi, I’m Oleg, IT-recruiter in AWG.ru. Also i'm translate the game lore into Russian.
 - 👀 I’m interested in learning English and creating my own stories. I love the themes of space, cyberpunk and post-apocalyptic.
 - 🌱 I’m currently learning English for oral and written communication with cool people around the world.
 - 💞️ I’m looking to collaborate on projects where I can localize content in my free time.
